@@ -1,1 +1,1 @@
-im just tryna lern, dont yell
+im just tryna learn, dont yell
